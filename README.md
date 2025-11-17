@@ -1,0 +1,1 @@
+# 7_GabrielaJeconiahTjandra_ProjectAkhir
